@@ -1,4 +1,9 @@
 ![enter image description here](https://i.sstatic.net/YN0MGex7.jpg)
+##And this video 👇:
+
+![enter image description here](https://i.sstatic.net/2ff1B85M.jpg)
+
+https://m.youtube.com/watch?v=Xv0gfbXe-mo
 
 https://chatgpt.com/share/679db66c-d750-8011-b83e-148ee3791831
 
@@ -63,4 +68,6 @@ https://drive.google.com/drive/u/0/mobile/folders/1LlmCSzEe8EMzS02m0ATfy80M5lVhS
   
 
 
-https://rentry.co/5n47dkmq
+https://rentry.co/bhmrfyt7
+
+
